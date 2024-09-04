@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **vivekmishra8009@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1V1EhwqyzhveQW124oA2sO07_AoBL-uCm/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1lye2Lf8EbAcmmPcNSN1Ihw5q_07zoacf/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
