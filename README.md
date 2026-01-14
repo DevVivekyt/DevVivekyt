@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Android, MERN**
 
-- 📫 How to reach me **vivekmishra8009@gmail.com**
+- 📫 How to reach me **info.vivekmishra01@gmail.com**
 
 - 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1lye2Lf8EbAcmmPcNSN1Ihw5q_07zoacf/view?usp=drive_link)
 
